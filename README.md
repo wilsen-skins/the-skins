@@ -1,6 +1,6 @@
 # the-skins
 These are all skins that i've made. These are all mixes of other skins. I personally only use the azer -ite edit for everything. lmao series was my first try at creating skin mixes, my goal was to make skins for tourneys. lmk if you like any of these :)
-#[azer -ite edit v2](https://mega.nz/file/drZjWSbZ#tEskncUmd7pq8AAw7mnvUr4ah-vaQk3TsDSQWpVGW4A)
+# [azer -ite edit v2](https://mega.nz/file/drZjWSbZ#tEskncUmd7pq8AAw7mnvUr4ah-vaQk3TsDSQWpVGW4A)
 ![screen](https://i.imgur.com/6uUnOuA.png)
 using only this as my main skin, follon hitcircles and the hitsounds feel cool :)
 # [azer -ite edit](https://mega.nz/file/oqgmlABD#baGGiWdSPmAqBW2YYT48293y9e79ZFuuItPGppMEclk)
