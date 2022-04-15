@@ -1,10 +1,10 @@
 # the-skins
 These are all skins that i've mixed. lmk if you like any of these :)
-# [lmao v2](https://mega.nz/file/AjRlBIII#oHx4m9_sNC9lAPJRzqbr_uiS9zFSkuPkEDwPQI-rjlE)
-![screen](https://i.imgur.com/pi00fru.png)
+# [lmao v2](https://mega.nz/file/xvwglIyA#nNswmTOx3gPDGVCbGMezXM2d1Ym_93tN5AROx3GjU3w)
+![screen](https://i.imgur.com/uNJp59e.png)
 lmao but with many aristia elements
-# [lmao rammu cookiezi](https://mega.nz/file/ZvQWgCiK#y8kuq-KMqwl17pqTAdIuKslLAblsKe7AM6hPlRbUcB4)
-![screen](https://i.imgur.com/HWZuIcC.png)
+# [lmao rammu cookiezi](https://mega.nz/file/o3oxGAjI#4ThgYFZvE1shW-d3i4e5TbRf1L59weoG5-NumZMcLDg)
+![screen](https://i.imgur.com/9NgiJeQ.png)
 check this out with hidden
 # [azer -ite edit final version](https://mega.nz/file/t7IiCQgA#xi121Nkw8ZDEDqM25aNmgZ8pDCd9iaayjmZVa79npP8)
 ![screen](https://i.imgur.com/cY1FBgi.png)
