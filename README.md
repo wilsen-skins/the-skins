@@ -1,5 +1,5 @@
 # the-skins
-These are all skins that i've mixed. lmk if you like any of these :)
+These are all skins that i've mixed. i change cursors from time to time. lmk if you like any of these :)
 # [lmao whitecat selyu](https://mega.nz/file/9joSzCqZ#D08r65Xla6VZj2RHJC-qSANNze8L0yf1A4vtiNCnWsQ)
 ![screen](https://i.imgur.com/0OzXPDu.png)
 nomod
