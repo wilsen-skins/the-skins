@@ -2,7 +2,7 @@
 These are all skins that i've mixed. lmk if you like any of these :)
 # [azer -ite edit final version](https://mega.nz/file/g3gChBaC#nDFMaBeOfgLwjgYgZw9GyeA-T_1GGSXy61SlRNsHG70)
 ![screen](https://i.imgur.com/VNwZb9I.png)
-only using this cause i found that i play everything better with this and i got used to it
+only using this cause i found that i play everything better with this and i got used to it, also its barely azer -ite at this point :D
 # [lmao whitecat selyu](https://mega.nz/file/9joSzCqZ#D08r65Xla6VZj2RHJC-qSANNze8L0yf1A4vtiNCnWsQ)
 ![screen](https://i.imgur.com/0OzXPDu.png)
 nomod
