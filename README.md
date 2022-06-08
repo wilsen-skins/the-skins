@@ -1,5 +1,7 @@
 # the-skins
 These are all skins that i've mixed. lmk if you like any of these :)
+# [Kantoku Skin by RuRu (SnowWhite) + Vaxei](https://mega.nz/file/R64CBbhI#yZC2kvtDIvwQOy9qKzK0Tt80octq0_ZQzIVcPHTCmtE)
+![screen](https://i.imgur.com/KQK3sEI.png)
 # [azer -ite edit final version](https://mega.nz/file/g3gChBaC#nDFMaBeOfgLwjgYgZw9GyeA-T_1GGSXy61SlRNsHG70)
 ![screen](https://i.imgur.com/VNwZb9I.png)
 only using this cause i found that i play everything better with this and i got used to it, also its barely azer -ite at this point :D
