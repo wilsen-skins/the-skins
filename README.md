@@ -20,6 +20,3 @@ hidden
 # [lmao](https://mega.nz/file/l2AVyY5A#hBYMGi1Ibm14dZREnSfw5hqosNMT-I2G6espti5aFEc)
 ![screen](https://i.imgur.com/FK5iaqC.png)
 my first skin mix
-# [lmao dt](https://mega.nz/file/hygkzAxB#Gg5i07XcmGtrAqA8przkaw0gO7aKwY1p0Tma7GzAILY)
-![screen](https://i.imgur.com/llx0ot9.png)
-yeah
