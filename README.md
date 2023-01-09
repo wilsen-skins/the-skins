@@ -8,7 +8,7 @@ These are all skins that i've mixed. lmk if you like any of these :). Im most li
 ![screen](https://i.imgur.com/KQK3sEI.png)
 # [azer -ite edit final version](https://mega.nz/file/A3BRkayC#43avp2cRxmHtTOZbVdrdbYe1VyncTdKUkRAAsLLkk8g)
 ![screen](https://i.imgur.com/VNwZb9I.png)
-# [lmao whitecat selyu](https://mega.nz/file/9joSzCqZ#D08r65Xla6VZj2RHJC-qSANNze8L0yf1A4vtiNCnWsQ)
+# [lmao whitecat selyu](https://mega.nz/file/1qQTkajZ#UNZ6YyJsbl9O84XjEW2PPy7yHoLbr0VWG-Liia8Sy0s)
 ![screen](https://i.imgur.com/0OzXPDu.png)
 nomod
 # [lmao dt bubble ver](https://mega.nz/file/Q7ZnhbTQ#0uHXgR7rrbqK5U7iC-_xtKC85MZuU3BiN0qXArEaBCs)
