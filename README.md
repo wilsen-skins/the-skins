@@ -1,5 +1,9 @@
 # the-skins
 These are all skins that i've mixed. lmk if you like any of these :). Im most likely only using the top one.
+# [-  {S}  - Crystalized - -Gawr Gura- instafade edit](https://mega.nz/file/Y7BXiShC#onfaeXGKrDyeCXMKmVJ3KZnDbJ-oupBARCw9vLn6nNA)
+![screen](https://i.imgur.com/cHtgf0Z.png)
+# [-  {S}  - Crystalized - -Sytho- instafade dt edit](https://mega.nz/file/0mZUSJxS#-IlkAlDqj-te8NPt5z5qua3Q5Cj1UzFcnPQHFkWiHx0)
+![screen](https://i.imgur.com/mpFOA7a.png)
 # [Kantoku Skin by RuRu (SnowWhite) + Vaxei](https://mega.nz/file/R64CBbhI#yZC2kvtDIvwQOy9qKzK0Tt80octq0_ZQzIVcPHTCmtE)
 ![screen](https://i.imgur.com/KQK3sEI.png)
 # [azer -ite edit final version](https://mega.nz/file/g3gChBaC#nDFMaBeOfgLwjgYgZw9GyeA-T_1GGSXy61SlRNsHG70)
